@@ -1,5 +1,5 @@
 ## Entre el Humedal y la Sociedad: Aporte Social y Ancestral de los humedales
-###Por: Nelson Soler, Gerardo Palacio y Juan David Sierra
+### Por: Nelson Soler, Gerardo Palacio y Juan David Sierra
 - - - 
 
 ### Justificación
